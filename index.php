@@ -118,5 +118,4 @@ Don't lose hope and don't give up even in these troubling times. Continue to rea
 Even if there are moments in our life where it is tainted by despair, we can overcome that despair with our own hope along the obstacles we pass. Moving forward with strength in our hearts makes us the person that we are. The first step on having hope is to truly believe in yourself.<p>
 <br>
 <a href="https://youtu.be/OYlOCtWByAk">Math Advocacy Speech</a>
-</body>
-</html>
+
